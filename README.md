@@ -94,9 +94,8 @@ Welcome to my GitHub! I'm passionate about using **data, artificial intelligence
 
 📧 Email: **bayodogo@gmail.com**
 
-💼 LinkedIn: *(Add your LinkedIn profile here)*
+💼 LinkedIn: *www.linkedin.com/in/bayo-nyangskebrifun*
 
-🐦 X (Twitter): *(Add your X profile here if you use it professionally)*
 
 ---
 
